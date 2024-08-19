@@ -4,9 +4,10 @@ just trying to have fun...
 
 　／|、
 （ﾟ､ ｡ ７　
-　|、 ~ヽ　 .　~ Meow ❤︎
+　|、 ~ヽ　 .　~ Meow ♥
 　じし|_,)ノ
 
 
-programming sidequests & mental gymnastics
+programming sidequests 
+& mental gymnastics
 ```
