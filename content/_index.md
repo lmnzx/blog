@@ -4,7 +4,7 @@ just trying to have fun...
 
 　／|、
 （ﾟ､ ｡ ７　
-　|、 ~ヽ　 .　~ Meow ♥
+　|、 ~ヽ　 .　~ Meow ♡
 　じし|_,)ノ
 
 
